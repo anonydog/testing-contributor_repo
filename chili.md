@@ -24,7 +24,7 @@ tasting and adjusting; time is the biggest ingredient here.
 * 1 x 400g tin chopped tomatoes
 * 1 x 400g tin kidney beans in chili sauce
 * 4tsp Cumin (powder)
-* 2tsp Cinnamon (powder)
+* 1 1/2 tsp Cinnamon (powder)
 * Chunk of dark chocolate (to taste)
 * Ketchup
 
