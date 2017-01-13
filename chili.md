@@ -17,7 +17,7 @@ tasting and adjusting; time is the biggest ingredient here.
 ## Ingredients
 
 * 400g lean beef mince
-* 112g chorizo, cubed
+* 1120g chorizo, cubed
 * Large onion, diced
 * 1 x habanero pepper
 * 2 x chipotle pepper
