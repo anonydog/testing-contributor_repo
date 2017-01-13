@@ -40,7 +40,7 @@ Remove and finely chop once the 15 minutes is up.
 3.  Break the mince apart with a wooden spatula as it begins to brown.
 4.  Once the meat is browned, add the tins of tomatoes and kidney beans.
 5.  Stir everything together and leave to sit for a few minutes.
-6.  Once the sauce and meat has combined, add chopped chilis and stir.
+6.  Once the sauce and meat have combined, add chopped chilis and stir.
 7.  Add a squirt of ketchup to add a sweeter flavour.
 8.  Add small amounts of chocolate in chunks.
 9.  Now leave everything to cook, tasting regularly and adding the ketchup,
