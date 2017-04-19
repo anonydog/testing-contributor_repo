@@ -1,6 +1,6 @@
 # Chili
 
-**Serves 3–4**
+**Serves 2–3**
 
 This is a firm favourite of mine that I’ve honed over the past couple of years.
 It’s crazy hot and deep as hell with rich, smokey flavours. Best cooked for
